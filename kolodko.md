@@ -32,9 +32,9 @@ Később, ugyancsak a kő mellvéden, megjelent egy apró tank szobrocska, amely
 
 ### Források
 * Blog.hu
-(https://cimlap.blog.hu/posztok/mrfoster/2022/10/26/itt_az_osszes_budapesti_kolodko_miniszobor_egy_helyen)
+https://cimlap.blog.hu/posztok/mrfoster/2022/10/26/itt_az_osszes_budapesti_kolodko_miniszobor_egy_helyen
 * Wikipedia
-(https://commons.wikimedia.org/wiki/Category:Mihajlo_Kolodko)
+https://commons.wikimedia.org/wiki/Category:Mihajlo_Kolodko
 
 
 
